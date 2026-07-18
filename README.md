@@ -5,7 +5,7 @@
 ## ˗ˏˋ 🪼 BYI ! 🪸 ˎˊ˗
 - HI! Im Veritas, Painter, or Veri! Whichever name you wanna call me! I am pretty friendly, depending on how you treat my friends, I am very defensive of them, and their boundaries; if you discomfort them I won't be afraid to point it out.
 - I block freely! And for this reason I might seem a bit mean; It's just cause I don't trust people on this app/game unless they are a friend of a friend! >_< !
-- If we become friends; I won't immediately give you my discord, let's get to know eachother a little on here first o_O
+- If we become friends; I won't immediately give you my discord, let's get to know eachother a little on here first o_O [ On Pt. ]
 - Interact with me cautiously, I know I might come off as friendly but if I have a DNI anywhere on a pony, or my discord, I mean it! I can get a bit aggressive or moody and I will say things I don't mean, and I really don't mean to hurt anyone at all- So maybe if you're worried I'll hurt you it's best to keep a bit of a distance. TwT
 - Yes! I will play roblox with you, I'll draw ur ocs, maybe vc, I really like playing Pressure & Animal hospital! But I can't promise to carry you in Pressure... x_X I am super bad at obbies & parkour related things in games!
 
