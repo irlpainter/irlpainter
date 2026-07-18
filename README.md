@@ -10,14 +10,23 @@
 - Yes! I will play roblox with you, I'll draw ur ocs, maybe vc, I really like playing Pressure & Animal hospital! But I can't promise to carry you in Pressure... x_X I am super bad at obbies & parkour related things in games!
 
 ## ˗ˏˋ 🫧 DNI / IWEC 🦈 ˎˊ˗ 
-- DNI MINORS , ANYONE UNDER 18. - IF I FIND OUT YOU ARE A MINOR I AM REPORTING YOU.
-- DNI TFC PLAYERS UNLESS FRIENDS W OOMFS
-- DNI TADC FANS UNLESS FRIENDS W OOMFS
+- DNI MINORS , ANYONE UNDER 18. - IF I FIND OUT YOU ARE A MINOR I AM REPORTING YOU. [ On Pt. ]
+- DNIUID TFC PLAYERS UNLESS FRIENDS W OOMFS 
+- DNIUID TADC FANS UNLESS FRIENDS W OOMFS
 - IWEC PRESSURE PLAYERS, DNI REN DEFENDERS , IWEC ZEAL DEFENDERS. THEY R BOTH AWFUL.
 - DNI IF YOU JOKE ABOUT RAPE, SEXUAL HARASSMENT, ABUSE, ETC.
 - DNI IF YOU ARE XENOPHOBIC; ESPECIALLY Russophobic 
 - IWEC SEBASTIAN IRLS/FICTIVES, KINS R OK
 - BASIC DNI; RACISTS, ZOOS, MAPS, PROSHIPPERS, ETC.
+
+## ˗ˏˋ 🪼 ME IN MEDIA ! 🪸 ˎˊ˗
+- P.ai.NTER [ Pressure ]
+- Edgar [ Electric Dreams ]
+- Verity [ Something Is Knocking At Your Door ]
+- Scag [ Regretevator ]
+- Mr.Ant Tenna [ Deltarune ]
+- HAL 9000 [ Space Odyssey ]
+
   
 ![](https://64.media.tumblr.com/dbf97d9bb443084f03dc569c5683e36c/f11e970429e9e3d9-de/s2048x3072/e3cc936e2705bd8e95587be6d388b92de6c84e23.pnj)
 ![](https://64.media.tumblr.com/3f3dfc6f43dd1f224d24e9be807da898/24860b94413c8d4e-0a/s2048x3072/d5012edaad1e0b8b6b9fe7f1ef68321f1dfc572b.pnj)
